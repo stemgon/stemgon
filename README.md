@@ -72,7 +72,7 @@ Have a project in mind or want to partner with us?
 
 - 📧 Email: hello@stemgon.co.za  
 - 🌐 Website: [https://www.stemgon.co.za](https://www.stemgon.co.za)  
-- 📱 WhatsApp: [+27 65 888 2125](https://wa.me/27658882125)  
+- 📱 WhatsApp: [+27 79 800 5807](https://wa.me/27798005807)  
 - 📍 Location: South Africa
 
 Follow us on social media:  
